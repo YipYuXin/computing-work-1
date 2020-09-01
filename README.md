@@ -1,4 +1,4 @@
-mr ong
+Mr Ong
 he teaches elements
 though it is my element of frustration
 he never fails to be N2 :D
@@ -10,31 +10,31 @@ because all of them
 ARGON
 
 
-ms poh
+Ms Poh
 we are elves
-we work for the candy
+working for the candy
 cos we want many :)
 
 
 
-mdm sim
+Mdm Sim
 she's a mom
-helps with all our things
-cares for all us bings :D
+helping with all our things
+caring for all us bings :D
 
 
 
-ms ng
+Ms Ng
 she teaches us about the world
 the big big world
 so big
 so much to memorise 
 
 
-mrs chu
+Mrs Chu
 we consult
-she divulge
-mission accomplised
+she divulges
+mission accomplished
 
 
 
